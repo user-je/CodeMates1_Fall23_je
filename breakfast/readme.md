@@ -14,7 +14,7 @@
 
 
 
-### Notes:
+### Notes: Ensure that ingredients are fresh for the best results
 
 
 
