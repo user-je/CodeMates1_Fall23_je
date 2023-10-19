@@ -2,7 +2,7 @@
 
 ## Servings: 4
 
-## Time to prepare: 10 minutes
+## Time to prepare: 9-11 minutes
 
 ## Ingredients:
 
@@ -27,7 +27,7 @@
 5. Sprinkle each slice with pepper.
 6. Serve.
 
-### Notes:
+### Notes: Ensure that ingredients are fresh for the best results
 
 
 
